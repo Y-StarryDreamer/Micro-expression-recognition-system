@@ -1,6 +1,6 @@
 平台链接：点击[链接](https://www.aspiringcode.com)
 
-项目参考链接: 点击[链接](https://www.aspiringcode.com/content?id=17045219032707)跳转
+项目链接: 点击[链接](https://www.aspiringcode.com/content?id=17045219032707)跳转
 
 ---
 
